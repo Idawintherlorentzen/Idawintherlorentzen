@@ -1,4 +1,4 @@
-Hej 👋 Mit navn er Ida Winther Lorentzen
+Hej 👋 Mit navn er Ida
 ======================================
 
 IT Studerende
